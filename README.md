@@ -1,1 +1,0 @@
-# gabrielcumi.github.io
